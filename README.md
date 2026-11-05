@@ -1,2 +1,0 @@
-# Nayakpara-Yash-
-Cloth shop 
